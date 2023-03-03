@@ -1,1 +1,2 @@
-# LJH230303
+# LJH
+jihyelee@gmail.com
